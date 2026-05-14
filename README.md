@@ -4,3 +4,6 @@
 
 
 
+𓏴    ࣪   (🍮)  molly  / she ⸝⸝ they / 14
+    ಄ esfj  .  2w3  . sanguine-phlegematic
+ ᠌  ᛝ ᠌riddle & nagisa oshi ::  typology & visual novel nerd
