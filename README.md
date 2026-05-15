@@ -1,6 +1,6 @@
 
 
- (🍮)  molly  / she ⸝⸝ they / 14
+ (🍮)  molly ⸝⸝ 14 
  
  ಄ esfj  .  2w3  . sanguine-phlegematic
 
